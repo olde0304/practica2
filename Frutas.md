@@ -5,3 +5,6 @@
 3. Peras
 4. Sandias
 5. Bananos
+6. Mandarinas
+7. Guayabas
+8. Mamones
