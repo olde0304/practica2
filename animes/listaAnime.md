@@ -3,3 +3,4 @@
 1. Shingeky no Kojin
 2. Naruto
 3. Deat Note
+4. Full metal 
