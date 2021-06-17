@@ -8,3 +8,9 @@
 6. Mandarinas
 7. Guayabas
 8. Mamones
+
+### Canciones favoritas 
+
+1. Shadow of the day
+2. In the end
+3. Nobody can you see me 
