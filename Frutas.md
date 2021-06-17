@@ -14,3 +14,4 @@
 1. Shadow of the day
 2. In the end
 3. Nobody can you see me 
+4. Given up (Hard rock and new metal) que raro
